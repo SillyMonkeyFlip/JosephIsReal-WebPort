@@ -20,3 +20,9 @@ I DID NOT CREATE JosephIsReal AT ALL! CHECK CREDITS!
 For context he's a pedophile, sent gore to minors and most importantly was told by the guy that made music for Baldi games to leave this community. Even after all of that lego still posted Baldi content (just waited 2 months and posted a lot of sprunki content instead) like if nothing happened.
 
 # USE #savejosephfrompghl TO SUPPORT THE CAUSE!!!
+
+# Media!
+
+![Distance](./ReadMeFiles/Distance.png)
+
+![Hallway](./ReadMeFiles/Hallway.png)
